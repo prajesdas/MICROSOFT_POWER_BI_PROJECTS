@@ -16,8 +16,12 @@ During this internship, I gained extensive hands-on experience with Power BI ðŸ“
 Overall, this internship equipped me with a solid foundation in Power BI and enhanced my data analytics skills, preparing me to tackle real-world data challenges effectively. Excited to apply these skills in future projects! ðŸŒŸ
 
 ![IMG-20240813-WA0002(1)](https://github.com/user-attachments/assets/ded28279-cea8-4425-9e2c-a2d28e97edd2)
+
 ![IMG-20240731-WA0011(1)](https://github.com/user-attachments/assets/dce7834f-7c66-4103-8856-db3007e9011f)
+
 ![IMG-20240731-WA0010](https://github.com/user-attachments/assets/c5448d7c-bec3-4ebb-b3d8-3e78faf18e22)
+
 ![IMG-20240731-WA0012(1)](https://github.com/user-attachments/assets/c49e7210-0db1-4727-bcd7-0e4bf3e8b8c8)
+
 ![IMG-20240731-WA0009(1)](https://github.com/user-attachments/assets/f869548b-be6c-4553-8b49-09d88a193c08)
 
